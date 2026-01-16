@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=CHEW0203&color=blue&label=VIEWS)
+
 <p align="center">WELCOME TO MY PROFILE!</p>
 <h1 align="center">HI👋!! I'm Lau Jing Sheng</h1>
 
