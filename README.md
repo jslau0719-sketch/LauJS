@@ -12,13 +12,13 @@
 
 - I'm from Ulu Tiram, Johor🗼.
 
+ - Now, I'm first year student in University Technology Malaysia (UTM)👨‍🎓.
+ 
+ - Currently pursuing Bachelor of Computer Science (Grpahic and Multimedia Software)📑.
+
 - My birthday is 19/07/2005🎂.
 
 - My hobby is playing chess♟️ and badminton🏸 .
-
-- Now, I'm first year student in University Technology Malaysia (UTM)👨‍🎓.
-
-- Currently pursuing Bachelor of Computer Science (Grpahic and Multimedia Software)📑.
 
 - Proficient in English, Chinese and Malay.
 
